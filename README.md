@@ -7,4 +7,4 @@ Meu nome é Ana Luiza Dos Santos Medeiros
 
 
 ![](https://media1.tenor.com/m/yFKbJFsOvs4AAAAC/luffy-smile-luffy-giggle.gif)
-![](https://motionbgs.com/media/929/madara-and-hashirama.960x540.mp4)
+![](https://tenor.com/pt-BR/view/admin-sin-guper-naruto-uchiha-gif-19085151)

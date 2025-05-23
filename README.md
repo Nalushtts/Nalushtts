@@ -3,7 +3,7 @@
 Meu nome é Ana Luiza Dos Santos Medeiros
 
 - Estou estudando no Alura;
-- Sou da sala do 2 ano C.
+- Sou da sala do 3 ano C.
 
 
 ![](https://media1.tenor.com/m/yFKbJFsOvs4AAAAC/luffy-smile-luffy-giggle.gif)
